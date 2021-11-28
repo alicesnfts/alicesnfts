@@ -1,4 +1,4 @@
-🎨🧒 Buy art of 3-years-old Alice and contribute to her future
+🎨🧒 Contribute to the future of 3-years-old Alice by buying her art
 
 ❤️ Half of the proceeding will be donated to charity
 
